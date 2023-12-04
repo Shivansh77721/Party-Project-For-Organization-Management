@@ -1,0 +1,1 @@
+# Party-Project-For-Organization-Management
